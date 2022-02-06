@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Sci-fi & Dystopian Novels
+2. Quality Shows
+  * You guys have go to watch[Person of Interest](https://www.imdb.com/title/tt1839578/)
+3. Gaming
+4. Dancing & Listening to Music
